@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to use GitHub...
 - 💞️ I’m looking to collaborate on Minecraft content
 - 📫 How to reach me: by YouTube [ @swplayerMC ] https://www.youtube.com/@swplayerMC
-- 😄 Pronouns: he / his
+- 😄 Pronouns: he / him
 - ⚡ Fun fact: i really like to play Minecraft PvP servers...
 
 <!---
